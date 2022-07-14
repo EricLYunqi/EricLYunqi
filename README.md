@@ -6,7 +6,8 @@ Learning embedded systeam with C++/C, data analysis with Python, image processin
 
 Also enjoy playing badminton, practicing and improving skills for piano ......
 
-contact me😜:
+### contact me😜:
+
 E-mail: ylilo@connect.ust.hk
 
 Wechat: LYunqiC1oud7
