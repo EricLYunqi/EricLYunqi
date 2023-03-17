@@ -1,6 +1,6 @@
 Contact: liyunqixa@gmail.com
 
-Knowing the unavailability of the sudden, the legacy of the wind.
+況吾與子漁樵於江渚之上，侶魚蝦而友麋鹿，駕一葉之扁舟，舉匏樽以相屬。 寄蜉蝣於天地，渺浮海之一粟。哀吾生之須臾，羨長江之無窮。挾飛仙以遨遊，抱明月而長終。知不可乎驟得，托遺響於悲風。
 
 
 
