@@ -1,4 +1,3 @@
-Contact: liyunqixa@gmail.com
-
+"总之岁月漫长，然而值得等待"
 
 
