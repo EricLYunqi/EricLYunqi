@@ -1,1 +1,1 @@
-有志不在年糕
+I study data management and mathematics.
