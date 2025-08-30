@@ -1,1 +1,1 @@
-I study data management and mathematics.
+I study data management and (a little bit of) mathematics.
